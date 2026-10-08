@@ -1,0 +1,2 @@
+# premium-form-sculpt-001-polyurethane-form-sculpting-an
+Stop guessing the anatomy beneath your polyurethane forms. Every sculptor knows the frustration of a shape that looks right but feels off because the underlying structure isn't logged or referenced.  This Notion log solves the disconnect between your material intuition and anatomical accuracy. Instead of starting from scratch each time, you systema
